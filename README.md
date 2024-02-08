@@ -6,6 +6,4 @@ xzxcаиваив
 fsa
 vdvDSEFEFa
 jhjghjujyuyu
-xcvfvfvzv
-bcbcfbxcvxz
-vvzxfvzfvxv
+xc
