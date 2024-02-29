@@ -3,8 +3,4 @@ vdvdefef
 sggsfefef
 fdfdfff
 thdghfgfdgd
-fgsdfsd
-fsdfdsfdsfdf
-cfdfgfg
-fgrgasdfs
-lyhfdgzsd
+fg
